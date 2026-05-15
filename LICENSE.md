@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket exclusive Strategy: event-driven-trading & portfolio-optimization, the #1 strategy. Includes event-driven-trading and
 
 
 
